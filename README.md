@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tech, Programming, etc.
 - 🌱 I’m currently learning IT & Cybersecurity Fundamentals
 - 💞️ I’m looking to collaborate on Tech, Programming stuff
-- 📫 How to reach me? Unknown Yet
+- 📫 How to reach me? Ramirect@mail.uc.edu | (513) 306-3259
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: Suspicious
 
